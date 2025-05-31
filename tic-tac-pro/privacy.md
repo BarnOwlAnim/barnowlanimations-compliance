@@ -29,4 +29,4 @@ We may update this Privacy Policy occasionally to reflect changes in our practic
 If you have any questions about this Privacy Policy, please contact us:
 
 **Barn Owl Animations Ltd**  
-Email: barnowlanimations@gmail.com
+barnowlanimations [at] gmail [dot] com
